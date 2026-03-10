@@ -44,5 +44,4 @@
 - [x]	Developing a systematic approach to devising a report building plan.
 
 
-eujte,gmvugrtjemuvitsmexfr,gvj
 
